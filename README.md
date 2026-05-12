@@ -1,3 +1,2 @@
 # 私に恋人を教えてください、あなたは私を愛していますか？
-
-![c140ec70d68ac1551f595edef6f28aa9](https://github.com/user-attachments/assets/04c4e43c-dd66-473e-9981-0d6f1a516219)
+https://avatars.mds.yandex.net/i?id=61a0e65b75d68b81feb505ff11f85df1_l-5284058-images-thumbs&n=13
